@@ -11,4 +11,4 @@
 
 **Off the clock:** music on a Linux studio, photography, creative coding, cycling and paddleboarding.
 
-[tomrhodes.it](https://tomrhodes.it) · [LinkedIn](https://www.linkedin.com/in/tom-rhodes-7021776/) · tom.rhodes@gmail.com · open to freelance and remote roles
+[tomrhodes.it](https://tomrhodes.it) · [LinkedIn](https://www.linkedin.com/in/tomjrhodes/) · tom.rhodes@gmail.com · open to freelance and remote roles
